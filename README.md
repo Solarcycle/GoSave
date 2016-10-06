@@ -25,4 +25,4 @@ OUR PROMISE OF QUALITY
 We always strive to deliver the highest quality products. 
 For any concerns or questions about the Go Save! App, please contact us via email at info@solarcyclepower.com and we'll be happy to help. Thank you!
 
-Compatible with iPhone, iPod Touch, and iPad. Requires iOS 3.1 or later. iTunes account required
+Compatible with iPhone, iPod Touch, and iPad. Requires iOS 3.1 or later.
